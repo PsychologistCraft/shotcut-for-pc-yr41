@@ -1,4 +1,4 @@
-# 
+# updated Shotcut for PC | Shotcut for Windows Effect | collaboration-tools + noise-reduction offers the most advanced Shotcut for PC | Shotcut for Windows effect, with
 
 
 
